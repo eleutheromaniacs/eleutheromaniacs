@@ -2,4 +2,4 @@
 
 i am very friendly even if i dont talk
 
-and i love people
+i love people   .   like you 
