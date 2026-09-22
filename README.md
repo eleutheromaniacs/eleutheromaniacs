@@ -2,4 +2,4 @@
 
 i am very friendly even if i dont talk
 
-i love people   .   like you 
+, ,  You are the universe tasting itself, talking to itself, reading its own code  ' '
